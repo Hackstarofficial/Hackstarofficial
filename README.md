@@ -81,7 +81,7 @@ AI-powered surveillance and emergency response system featuring:
 📧 Email: biswajitpatraofficial@gmail.com
 
 💼 LinkedIn:
-www.linkedin.com/in/biswajit-patra-28165b270
+www.linkedin.com/in/biswajitpatraofficial
 
 📍 Odisha, India
 
